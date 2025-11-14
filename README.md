@@ -1,0 +1,1 @@
+# QualiSolo-1.0
